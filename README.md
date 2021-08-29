@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VisTsigas
+- 👋 Hi, I’m Vissarion
 - 👀 I’m interested in Graphic Design
 - 🌱 I’m currently learning Blender
 - 💞️ I’m looking to collaborate on Digital Advertising
